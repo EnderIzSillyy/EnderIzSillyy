@@ -1,10 +1,4 @@
 
-![354540293006211](https://github.com/user-attachments/assets/29f503a5-f7a3-466f-a43a-791ad07a182a)
-
-![bba51c9c56b07ab52fcc7d41f8e39f85f66a4dde](https://github.com/user-attachments/assets/1176970a-183f-4123-b6e9-0c3c78f5df64)
-
-
-
 # ★ Time to introduce myself ! ★ ![0c2795476a8e43ed08537a1682c3d78abd8f5e63](https://github.com/user-attachments/assets/b141c4b2-871d-4480-b3ea-0ce7d091766c)
 
 - My names Cosmo/Scythe ! But you can call me Cosmie, Greg or Jelly !
@@ -25,7 +19,9 @@ Feel free to interact with me whatsoever ! I'm open to roleplay, C+H, or just si
 
 I mainly roleplay or just goof around with my friends ( I'm a bit of a freakfest ;]] )
 
-★ OFFICIAL SCYTHE OF ASHES.TOWN !!! ★
+★ 𝐎𝐅𝐅𝐈𝐂𝐈𝐀𝐋 𝐒𝐂𝐘𝐓𝐇𝐄 𝐎𝐅 𝐀𝐒𝐇𝐄𝐒.𝐓𝐎𝐖𝐍 !!! ★
+
+![Screenshot 2024-12-03 020910](https://github.com/user-attachments/assets/fcce1fe8-4515-4200-a615-4344a0233f2e)
 
 
 ❌ PLEASE DNI IF YOU ARE ABOVE 21. ❌
