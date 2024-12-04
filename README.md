@@ -1,5 +1,5 @@
 
-# ★ Time to introduce myself ! ★ ![0c2795476a8e43ed08537a1682c3d78abd8f5e63](https://github.com/user-attachments/assets/b141c4b2-871d-4480-b3ea-0ce7d091766c)
+# ★ 𝒯𝒾𝓂𝑒 𝓉𝑜 𝒾𝓃𝓉𝓇𝑜𝒹𝓊𝒸𝑒 𝓂𝓎𝓈𝑒𝓁𝒻 ! ★ ![0c2795476a8e43ed08537a1682c3d78abd8f5e63](https://github.com/user-attachments/assets/b141c4b2-871d-4480-b3ea-0ce7d091766c)
 
 - My names Cosmo/Scythe ! But you can call me Cosmie, Greg or Jelly !
 
@@ -24,6 +24,6 @@ I mainly roleplay or just goof around with my friends ( I'm a bit of a freakfest
 ![Screenshot 2024-12-03 020910](https://github.com/user-attachments/assets/fcce1fe8-4515-4200-a615-4344a0233f2e)
 
 
-❌ PLEASE DNI IF YOU ARE ABOVE 21. ❌
+❌ 𝙋𝙇𝙀𝘼𝙎𝙀 𝘿𝙉𝙄 𝙄𝙁 𝙔𝙊𝙐 𝘼𝙍𝙀 𝘼𝘽𝙊𝙑𝙀 21. ❌
 
 ![354540293006211](https://github.com/user-attachments/assets/d97d35e1-9430-4fd6-b2e5-5f3d04c1aa93)
