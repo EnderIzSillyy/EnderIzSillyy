@@ -1,4 +1,4 @@
-
+![phighting-scythe](https://github.com/user-attachments/assets/7cefd183-4b69-40c0-ae8c-0e11d906fdae)
 ★ Woah ! Hi there ! Seems you've stumbled upon my silly shitshow...
 
 # 𝙇𝙚𝙢𝙢𝙚 𝙟𝙪𝙨𝙩 𝙞𝙣𝙩𝙧𝙤𝙙𝙪𝙘𝙚 𝙢𝙮𝙨𝙚𝙡𝙛 !! ![0c2795476a8e43ed08537a1682c3d78abd8f5e63](https://github.com/user-attachments/assets/b141c4b2-871d-4480-b3ea-0ce7d091766c)
@@ -19,8 +19,6 @@ Feel free to interact with me whatsoever ! I'm open to roleplay, C+H, or just si
 I mainly roleplay or just goof around with my friends ( I'm a bit of a freakfest ;]] )
 
 ★ OFFICIAL SCYTHE OF ASHES.TOWN !!! ★
-
-![scythe-phighting (1)](https://github.com/user-attachments/assets/07e105a2-bbcb-40c3-a7d0-2b357ab4a69f)
 
 
 ❌ PLEASE DNI IF YOU ARE ABOVE 21. ❌
