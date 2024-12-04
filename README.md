@@ -1,8 +1,7 @@
 
 ![354540293006211](https://github.com/user-attachments/assets/29f503a5-f7a3-466f-a43a-791ad07a182a)
 
-
-![Untitled Project - 2024-12-03T194603 118](https://github.com/user-attachments/assets/16f2c26a-7f5e-4507-8069-7454a6ec2d35)
+![bba51c9c56b07ab52fcc7d41f8e39f85f66a4dde](https://github.com/user-attachments/assets/1176970a-183f-4123-b6e9-0c3c78f5df64)
 
 
 
