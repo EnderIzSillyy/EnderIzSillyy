@@ -1,12 +1,12 @@
 
 ![354540293006211](https://github.com/user-attachments/assets/29f503a5-f7a3-466f-a43a-791ad07a182a)
 
-★ " 𝙈𝙖𝙮 𝙄 𝙝𝙖𝙫𝙚 𝙩𝙝𝙞𝙨 𝙙𝙖𝙣𝙘𝙚? "
+ " 𝙈𝙖𝙮 𝙄 𝙝𝙖𝙫𝙚 𝙩𝙝𝙞𝙨 𝙙𝙖𝙣𝙘𝙚? "
 
 ![phighting-scythe-phighting](https://github.com/user-attachments/assets/4eb9aa29-8ce5-4fe5-b281-dd3bf0d90857)
 
 
-# Time to introduce myself ! ![0c2795476a8e43ed08537a1682c3d78abd8f5e63](https://github.com/user-attachments/assets/b141c4b2-871d-4480-b3ea-0ce7d091766c)
+# ★ Time to introduce myself ! ★ ![0c2795476a8e43ed08537a1682c3d78abd8f5e63](https://github.com/user-attachments/assets/b141c4b2-871d-4480-b3ea-0ce7d091766c)
 
 - My names Cosmo/Scythe ! But you can call me Cosmie, Greg or Jelly !
 
