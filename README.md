@@ -1,6 +1,5 @@
 
-
-★ " May I have this dance? "
+★ " 𝙈𝙖𝙮 𝙄 𝙝𝙖𝙫𝙚 𝙩𝙝𝙞𝙨 𝙙𝙖𝙣𝙘𝙚? "
 
 ![phighting-scythe-phighting](https://github.com/user-attachments/assets/4eb9aa29-8ce5-4fe5-b281-dd3bf0d90857)
 
@@ -13,6 +12,7 @@ I'm a Ashes.town skin maker, beginner VA/Impressionist, singer, and artist !
 
 OBSESSED WITH PHIGHTING, PRESSURE, REGRETEVATOR, SLENDYTUBBIES, MOUTHWASHING, UNDERTALE ( AUS ) AND DEADPLATE !!!
 
+![phighting-scythe](https://github.com/user-attachments/assets/39d17f3c-b3c0-4f37-911a-c386d332c68e)
 
 𝘐 𝘸𝘪𝘭𝘭 𝘯𝘰𝘵 𝘥𝘪𝘴𝘤𝘭𝘰𝘴𝘦 𝘮𝘺 𝘢𝘨𝘦, 𝘣𝘶𝘵 𝘐 𝘢𝘮 𝘢 𝙈𝙄𝙉𝙊𝙍 !! 🔞🔞🔞 ( 𝙊𝙊𝙈𝙁𝙎 𝙆𝙉𝙊𝙒 𝙈𝙔 𝘼𝙂𝙀 )
 
