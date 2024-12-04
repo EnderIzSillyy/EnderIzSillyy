@@ -1,4 +1,6 @@
 
+![354540293006211](https://github.com/user-attachments/assets/29f503a5-f7a3-466f-a43a-791ad07a182a)
+
 ★ " 𝙈𝙖𝙮 𝙄 𝙝𝙖𝙫𝙚 𝙩𝙝𝙞𝙨 𝙙𝙖𝙣𝙘𝙚? "
 
 ![phighting-scythe-phighting](https://github.com/user-attachments/assets/4eb9aa29-8ce5-4fe5-b281-dd3bf0d90857)
@@ -26,3 +28,5 @@ I mainly roleplay or just goof around with my friends ( I'm a bit of a freakfest
 
 
 ❌ PLEASE DNI IF YOU ARE ABOVE 21. ❌
+
+![354540293006211](https://github.com/user-attachments/assets/d97d35e1-9430-4fd6-b2e5-5f3d04c1aa93)
