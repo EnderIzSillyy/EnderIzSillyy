@@ -3,7 +3,7 @@
 
 - My names Cosmo/Scythe ! But you can call me Cosmie, Greg or Jelly !
 
-I'm a Ashes.town skin maker, beginner VA/Impressionist, singer, and artist !  
+I'm a Ashes.town cosplayer, beginner VA/Impressionist, singer, and artist !  
 
 OBSESSED WITH PHIGHTING, PRESSURE, REGRETEVATOR, SLENDYTUBBIES, MOUTHWASHING, UNDERTALE ( AUS ) AND DEADPLATE !!!
 
@@ -26,4 +26,6 @@ I mainly roleplay or just goof around with my friends ( I'm a bit of a freakfest
 
 ❌ 𝙋𝙇𝙀𝘼𝙎𝙀 𝘿𝙉𝙄 𝙄𝙁 𝙔𝙊𝙐 𝘼𝙍𝙀 𝘼𝘽𝙊𝙑𝙀 21. ❌
 
-![354540293006211](https://github.com/user-attachments/assets/d97d35e1-9430-4fd6-b2e5-5f3d04c1aa93)
+![Screenshot 2024-11-08 164852](https://github.com/user-attachments/assets/3423b1c2-e0e7-4c41-847d-059e3256f70d)
+
+
