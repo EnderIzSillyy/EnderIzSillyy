@@ -1,5 +1,9 @@
-![phighting-scythe](https://github.com/user-attachments/assets/7cefd183-4b69-40c0-ae8c-0e11d906fdae)
-★ Woah ! Hi there ! Seems you've stumbled upon my silly shitshow...
+
+
+★ Woah ! Hi there ! Seems you've stumbled upon my silly shitshow...!
+
+![phighting-scythe-phighting](https://github.com/user-attachments/assets/4eb9aa29-8ce5-4fe5-b281-dd3bf0d90857)
+
 
 # 𝙇𝙚𝙢𝙢𝙚 𝙟𝙪𝙨𝙩 𝙞𝙣𝙩𝙧𝙤𝙙𝙪𝙘𝙚 𝙢𝙮𝙨𝙚𝙡𝙛 !! ![0c2795476a8e43ed08537a1682c3d78abd8f5e63](https://github.com/user-attachments/assets/b141c4b2-871d-4480-b3ea-0ce7d091766c)
 
