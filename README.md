@@ -15,10 +15,11 @@ OBSESSED WITH PHIGHTING, DANDYS WORLD, PRESSURE, REGRETEVATOR, SLENDYTUBBIES, MO
 
 - 𝙏𝙝𝙞𝙨 𝙞𝙨 𝙪𝙨𝙚𝙙 𝙖𝙨 𝙖 𝙗𝙞𝙤 𝙛𝙤𝙧 𝙢𝙮 𝘼𝙨𝙝𝙚𝙨.𝙩𝙤𝙬𝙣 :𝘿
 
-Feel free to interact with me whatsoever ! I'm open to roleplay, C+H, or just simply listen to your problems. 
+Feel free to interact with me whatsoever ! I'm open to roleplay, C+H (Cuddle+Hide), or just simply listen to your problems. 
 
-I mainly roleplay or just goof around with my friends ( I'm a bit of a freakfest ;]] )
+Just a reminder that my trust and respect is EARNED. If I do not trust you, sucks to be you because I most likely never will. Along with that, if I act hostile or rude towards you, its probably because you've ticked me off or I just don't enjoy your presence. Other than that, I'm a nice person :D
 
+I mainly roleplay or just goof around with my friends XDD
 
 ![image](https://github.com/user-attachments/assets/f5ebab54-3b19-40b1-9a42-0c84164e9378)
 
