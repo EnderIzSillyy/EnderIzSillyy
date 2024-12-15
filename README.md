@@ -1,14 +1,15 @@
 
-# ★ 𝒯𝒾𝓂𝑒 𝓉𝑜 𝒾𝓃𝓉𝓇𝑜𝒹𝓊𝒸𝑒 𝓂𝓎𝓈𝑒𝓁𝒻 ! ★ ![0c2795476a8e43ed08537a1682c3d78abd8f5e63](https://github.com/user-attachments/assets/b141c4b2-871d-4480-b3ea-0ce7d091766c)
+# ★ 𝙏𝙞𝙢𝙚 𝙩𝙤 𝙞𝙣𝙩𝙧𝙤𝙙𝙪𝙘𝙚 𝙢𝙮𝙨𝙚𝙡𝙛 ! ★ ![0c2795476a8e43ed08537a1682c3d78abd8f5e63](https://github.com/user-attachments/assets/b141c4b2-871d-4480-b3ea-0ce7d091766c)
 
 - My names Cosmo/Cosmie ! But you can also call me Greg or Jelly !
 
 I'm a Ashes.town cosplayer, beginner VA/Impressionist, singer, and artist !  
 
-OBSESSED WITH PHIGHTING, PRESSURE, REGRETEVATOR, SLENDYTUBBIES, MOUTHWASHING, UNDERTALE ( AUS ) AND DEADPLATE !!!
+OBSESSED WITH PHIGHTING, DANDYS WORLD, PRESSURE, REGRETEVATOR, SLENDYTUBBIES, MOUTHWASHING, UNDERTALE ( AUS ) AND EPIC THE MUSICAL !!!
 
 
-![phighting-scythe](https://github.com/user-attachments/assets/39d17f3c-b3c0-4f37-911a-c386d332c68e)
+![fruitcake-dandys-world](https://github.com/user-attachments/assets/e194a849-b103-451f-976d-5550951d3e6d)
+
 
 𝘐 𝘸𝘪𝘭𝘭 𝘯𝘰𝘵 𝘥𝘪𝘴𝘤𝘭𝘰𝘴𝘦 𝘮𝘺 𝘢𝘨𝘦, 𝘣𝘶𝘵 𝘐 𝘢𝘮 𝘢 𝙈𝙄𝙉𝙊𝙍 !! 🔞🔞🔞 ( 𝙊𝙊𝙈𝙁𝙎 𝙆𝙉𝙊𝙒 𝙈𝙔 𝘼𝙂𝙀 )
 
