@@ -3,7 +3,7 @@
 
 - My names Cosmo/Cosmie ! But you can also call me Greg or Jelly !
 
-I'm a Ashes.town cosplayer, beginner VA/Impressionist, singer, and artist !  
+𝘐'𝘮 𝘢 𝘈𝘴𝘩𝘦𝘴.𝘵𝘰𝘸𝘯 𝘤𝘰𝘴𝘱𝘭𝘢𝘺𝘦𝘳, 𝘣𝘦𝘨𝘪𝘯𝘯𝘦𝘳 𝘝𝘈/𝘐𝘮𝘱𝘳𝘦𝘴𝘴𝘪𝘰𝘯𝘪𝘴𝘵, 𝘴𝘪𝘯𝘨𝘦𝘳, 𝘢𝘯𝘥 𝘢𝘳𝘵𝘪𝘴𝘵 !
 
 OBSESSED WITH PHIGHTING, DANDYS WORLD, PRESSURE, REGRETEVATOR, SLENDYTUBBIES, MOUTHWASHING, UNDERTALE ( AUS ) AND EPIC THE MUSICAL !!!
 
