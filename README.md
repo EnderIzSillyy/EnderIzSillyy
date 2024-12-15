@@ -17,8 +17,7 @@ OBSESSED WITH PHIGHTING, DANDYS WORLD, PRESSURE, REGRETEVATOR, SLENDYTUBBIES, MO
 
 Feel free to interact with me whatsoever ! I'm open to roleplay, C+H (Cuddle+Hide), or just simply listen to your problems. 
 
-Just a reminder that my trust and respect is EARNED. If I do not trust you, sucks to be you because I most likely never will. Along with that, if I act hostile or rude towards you, its probably because you've ticked me off or I just don't enjoy your presence. Other than that, I'm a nice person :D
-
+𝘑𝘶𝘴𝘵 𝘢 𝘳𝘦𝘮𝘪𝘯𝘥𝘦𝘳 𝘵𝘩𝘢𝘵 𝘮𝘺 𝘵𝘳𝘶𝘴𝘵 𝘢𝘯𝘥 𝘳𝘦𝘴𝘱𝘦𝘤𝘵 𝘪𝘴 𝘌𝘈𝘙𝘕𝘌𝘋. 𝘐𝘧 𝘐 𝘥𝘰 𝘯𝘰𝘵 𝘵𝘳𝘶𝘴𝘵 𝘺𝘰𝘶, 𝘴𝘶𝘤𝘬𝘴 𝘵𝘰 𝘣𝘦 𝘺𝘰𝘶 𝘣𝘦𝘤𝘢𝘶𝘴𝘦 𝘐 𝘮𝘰𝘴𝘵 𝘭𝘪𝘬𝘦𝘭𝘺 𝘯𝘦𝘷𝘦𝘳 𝘸𝘪𝘭𝘭. 𝘈𝘭𝘰𝘯𝘨 𝘸𝘪𝘵𝘩 𝘵𝘩𝘢𝘵, 𝘪𝘧 𝘐 𝘢𝘤𝘵 𝘩𝘰𝘴𝘵𝘪𝘭𝘦 𝘰𝘳 𝘳𝘶𝘥𝘦 𝘵𝘰𝘸𝘢𝘳𝘥𝘴 𝘺𝘰𝘶, 𝘪𝘵𝘴 𝘱𝘳𝘰𝘣𝘢𝘣𝘭𝘺 𝘣𝘦𝘤𝘢𝘶𝘴𝘦 𝘺𝘰𝘶'𝘷𝘦 𝘵𝘪𝘤𝘬𝘦𝘥 𝘮𝘦 𝘰𝘧𝘧 𝘰𝘳 𝘐 𝘫𝘶𝘴𝘵 𝘥𝘰𝘯'𝘵 𝘦𝘯𝘫𝘰𝘺 𝘺𝘰𝘶𝘳 𝘱𝘳𝘦𝘴𝘦𝘯𝘤𝘦. 𝘖𝘵𝘩𝘦𝘳 𝘵𝘩𝘢𝘯 𝘵𝘩𝘢𝘵, 𝘐'𝘮 𝘢 𝘯𝘪𝘤𝘦 𝘱𝘦𝘳𝘴𝘰𝘯 :𝘋
 I mainly roleplay or just goof around with my friends XDD
 
 ![image](https://github.com/user-attachments/assets/f5ebab54-3b19-40b1-9a42-0c84164e9378)
