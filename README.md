@@ -20,13 +20,15 @@ Feel free to interact with me whatsoever ! I'm open to roleplay, C+H, or just si
 I mainly roleplay or just goof around with my friends ( I'm a bit of a freakfest ;]] )
 
 
-![Screenshot 2024-12-03 020910](https://github.com/user-attachments/assets/fcce1fe8-4515-4200-a615-4344a0233f2e)
+![image](https://github.com/user-attachments/assets/f5ebab54-3b19-40b1-9a42-0c84164e9378)
+
 
 
 ❌ 𝙋𝙇𝙀𝘼𝙎𝙀 𝘿𝙉𝙄 𝙄𝙁 𝙔𝙊𝙐 𝘼𝙍𝙀 𝘼𝘽𝙊𝙑𝙀 21. ❌
 
-![Screenshot 2024-11-08 164852](https://github.com/user-attachments/assets/3423b1c2-e0e7-4c41-847d-059e3256f70d)
+
 
 Read my pronouns.cc for more about me !
 
 
+![dandys-world-rodger](https://github.com/user-attachments/assets/26e3757b-d21d-44d7-a0a1-82f8ac77fbc5)
